@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about my favorite programing lenguage
 - 📫 How to reach me: sdsdgsd
 - 😄 Pronouns: sgsdg
-- ⚡ Fun fact: sgdgs jejeje
+- ⚡ Fun fact: sgdgs jejeje jojo
 
